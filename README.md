@@ -1,1 +1,0 @@
-# Maratona-Explorer-1
